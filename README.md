@@ -212,4 +212,4 @@ PokerTH is offered as a full free version with all features and updates included
 Get ready to experience the excitement of poker like never before! **Download PokerTH free today and start your journey to poker mastery!**
 
 ---
-**Last updated:** 2026-11-14 07:21:53 UTC
+**Last updated:** 2026-11-14 14:46:30 UTC
